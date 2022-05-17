@@ -1,6 +1,7 @@
-# COMBINE1
+# EMAIL CONFIRMATIONS BY THE COUNSELORS OF THE ZUCKER ORGANIZATION
+*** A VIOLATION OF PRIVACY AND A BREACH OF THE LAW AND CONTRACT.
 
-READ TIMESTAMPS
+#### READ TIMESTAMPS
 
 [ https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/2 ](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/2)
 
@@ -11,13 +12,15 @@ READ TIMESTAMPS
 [MSG BOX 3: The Zuckers are protected by these individuals](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/4/files)
 
 
-
-
 ## ECONOMIC BENEFITS
 [https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=IY8iDH_PLUS_UpVanEtcRioef3A==](https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=IY8iDH_PLUS_UpVanEtcRioef3A==)
 
-
-## HIRED A PROFESSIONAL ON-DEMAN VIDEO SPECIALIST.
+#### HIRED A sub-par ON-DEMAN VIDEO SPECIALIST.
+**** ps what the heck is Pod-Cast?
+**** did NOT know I had one of those either.
 @rosaliachann
 [https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==]
 (https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==)
+
+
+p.s. I never met any of the Zuckers, Wilson Dicker, Laskowitz, Miwa, or any of these people who documented me every day.
