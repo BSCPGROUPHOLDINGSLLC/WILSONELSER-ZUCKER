@@ -35,4 +35,4 @@
 [https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==](https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==)
 
 
-p.s. I never met any of the Zuckers, Wilson Dicker, Laskowitz, Miwa, or any of these people who documented me every day.
+p.s.     I never met any of the Zuckers, Wilson, Dicker, Laskowitz, or any of these window peepers of the interior of my apartment..
