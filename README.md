@@ -11,6 +11,10 @@
 
 [MSG BOX 3: The Zuckers are protected by these individuals](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/4/files)
 
+[MSG BOX 4: The Zuckers are protected by these individuals](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/tree/b2d4a6b35876251b8950329408f60822bf5eb5ab)
+
+
+
 
 ## ECONOMIC BENEFITS
 [https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=IY8iDH_PLUS_UpVanEtcRioef3A==](https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=IY8iDH_PLUS_UpVanEtcRioef3A==)
@@ -19,8 +23,7 @@
 **** ps what the heck is Pod-Cast?
 **** did NOT know I had one of those either.
 @rosaliachann
-[https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==]
-(https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==)
+[https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==](https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==)
 
 
 p.s. I never met any of the Zuckers, Wilson Dicker, Laskowitz, Miwa, or any of these people who documented me every day.
