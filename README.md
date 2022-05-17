@@ -16,6 +16,12 @@
 
 [MSG BOX 4: The Zuckers are protected by these individuals](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/tree/b2d4a6b35876251b8950329408f60822bf5eb5ab)
 
+[MSG BOX 5: The Zuckers are protected by these individuals](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/commit/b12092aa7c05109fc7f7b616c91e66f98e296098)
+
+##### I WARNED THEM - I AM NOT A "STANDARD ISSUE STUDENT " FROM THEM TO MESS AROUND WITH.
+<em>I WOULD NOT WISH THIS ON ANYONE, THEY WILL NOT RESPOND OR RETURN A CALL, VIDEO, OR THE MONEY THEY STOLE.</em>
+* https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=NvtIUa5jls0V4/OF7/XlGg==
+
 
 
 
