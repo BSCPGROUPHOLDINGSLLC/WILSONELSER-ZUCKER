@@ -2,6 +2,8 @@
 *** A VIOLATION OF PRIVACY AND A BREACH OF THE LAW AND CONTRACT.
 ![image](https://user-images.githubusercontent.com/70865813/168748861-5b05f977-8c84-4a7f-be24-dd5c5fba38ab.png)
 
+![image](https://user-images.githubusercontent.com/70865813/168748960-577e158c-2860-40f0-a9c1-7699cdd24c25.png)
+
 #### READ TIMESTAMPS
 
 [ https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/2 ](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/2)
