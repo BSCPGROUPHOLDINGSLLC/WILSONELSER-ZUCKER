@@ -1,3 +1,4 @@
+[nov 16 - 2021.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8707209/nov.16.-.2021.pdf)
 # Monrovia, Reykjavik.
 ## read on Monday, February 7, 2022 4:47:05 PM (UTC+00:00)
 
