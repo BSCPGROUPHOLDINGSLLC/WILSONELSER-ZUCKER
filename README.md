@@ -8,6 +8,9 @@ READ TIMESTAMPS
 
 [MSG BOX 2: § 11 440 Tampering with or fabricating physical evidence](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/tree/0d69023191f5a8a25006caf258a50b649da83aa0)
 
+[MSG BOX 3: The Zuckers are protected by these individuals](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/4/files)
+
+
 
 
 ## ECONOMIC BENEFITS
