@@ -12,3 +12,9 @@ READ TIMESTAMPS
 
 ## ECONOMIC BENEFITS
 [https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=IY8iDH_PLUS_UpVanEtcRioef3A==](https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=IY8iDH_PLUS_UpVanEtcRioef3A==)
+
+
+## HIRED A PROFESSIONAL ON-DEMAN VIDEO SPECIALIST.
+@rosaliachann
+[https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==]
+(https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==)
