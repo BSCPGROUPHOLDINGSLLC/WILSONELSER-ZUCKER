@@ -1,5 +1,9 @@
 ### EMAIL CONFIRMATIONS BY THE COUNSELORS OF THE ZUCKER ORGANIZATION
 *** A VIOLATION OF PRIVACY AND A BREACH OF THE LAW AND CONTRACT.
+*** https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/blob/main/README.md
+*** https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/commit/c86a06bde31251d0f083017d87b7037e00652dad
+
+
 ![image](https://user-images.githubusercontent.com/70865813/168748861-5b05f977-8c84-4a7f-be24-dd5c5fba38ab.png)
 
 ![image](https://user-images.githubusercontent.com/70865813/168748960-577e158c-2860-40f0-a9c1-7699cdd24c25.png)
