@@ -4,6 +4,10 @@
 
 ![image](https://user-images.githubusercontent.com/70865813/168748960-577e158c-2860-40f0-a9c1-7699cdd24c25.png)
 
+####
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/tree/CRYSTAL-IBC-LLC
+
+
 #### READ TIMESTAMPS
 
 [ https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/2 ](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/2)
@@ -21,7 +25,6 @@
 ##### I WARNED THEM - I AM NOT A "STANDARD ISSUE STUDENT " FROM THEM TO MESS AROUND WITH.
 <em>I WOULD NOT WISH THIS ON ANYONE, THEY WILL NOT RESPOND OR RETURN A CALL, VIDEO, OR THE MONEY THEY STOLE.</em>
 * https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=NvtIUa5jls0V4/OF7/XlGg==
-
 
 
 
