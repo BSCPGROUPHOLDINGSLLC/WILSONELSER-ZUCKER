@@ -42,3 +42,8 @@ p.s.     I never met any of the Zuckers, Wilson, Dicker, Laskowitz, or any of th
 
 
 https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/11
+
+
+https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/7
+
+![image](https://user-images.githubusercontent.com/70865813/169582929-e13191c1-8063-479c-8242-229c6a077c7f.png)
