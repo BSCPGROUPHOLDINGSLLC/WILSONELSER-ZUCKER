@@ -39,6 +39,7 @@
 
 
 p.s.     I never met any of the Zuckers, Wilson, Dicker, Laskowitz, or any of these window peepers of the interior of my apartment..
+![Screenshot_20220307-113345_Messages](https://user-images.githubusercontent.com/70865813/169640805-4a2231f0-4d7a-4f61-84d2-d4cc6bce337b.jpg)
 
 
 https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/11
