@@ -224,3 +224,172 @@ https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.
 ![image](https://user-images.githubusercontent.com/70865813/169647584-475d3af1-8e51-4a99-9360-b3d20b3100b0.png)
 
 
+
+
+![IAj0PKJx7Zx9e1Xp](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
+
+12-12, 5858///
+https://github.com/users/BSCPGROUPHOLDINGSLLC/projects/1#column-18309490
+
+
+
+
+Remember to visit Governor Hochul on Facebook, where you can receive regular updates on the actions of the Governor.
+
+
+ForwardedMessage.eml
+Subject:
+93715 - 153974/2020 --- 1516523
+From:
+B D2022 <ms60710444266@yahoo.com>
+Date:
+5/21/2022, 12:46 PM
+To:
+Governor Hochul <governor.hochul@exec.ny.gov>, "BK01 (CB)" <bk01@cb.nyc.gov>, "AREYNOSO@mskyline.com" <AREYNOSO@mskyline.com>
+CC:
+TEDHERMANSON@northmarq.com, jpetit@mccarter.com, ashley.humphries@wilsonelser.com, "alex.zuluaga@ey.com" <alex.zuluaga@ey.com>, "david.brown1@ey.com" <david.brown1@ey.com>, Deborah M Jones <Deborah.Jones@ey.com>, "info@ey.com" <info@ey.com>, "jacqueline.kelley@ey.com" <jacqueline.kelley@ey.com>, "karim.anani@ey.com" <karim.anani@ey.com>, "kevin.klimara@ey.com" <kevin.klimara@ey.com>, "lee.henderson@ey.com" <lee.henderson@ey.com>, "mark.schwartz1@ey.com" <mark.schwartz1@ey.com>, "rachel.gerring@ey.com" <rachel.gerring@ey.com>, "megan.disciullo@pwc.com" <megan.disciullo@pwc.com>, "larissa.vonlockner@pwc.com" <larissa.vonlockner@pwc.com>, "ryan.a.cangialosi@pwc.com" <ryan.a.cangialosi@pwc.com>, "kivalena.starr@pwc.com" <kivalena.starr@pwc.com>, "jordana.strosberg@pwc.com" <jordana.strosberg@pwc.com>, "will.b.hodges@pwc.com" <will.b.hodges@pwc.com>, "jennifer.vanoss@pwc.com" <jennifer.vanoss@pwc.com>, "SENDROWSKI, DANIEL" <Daniel.Sendrowski@nypd.org>
+
+ATTN: Mr. Reynoso,
+
+        RE:     NYFRB 93715 - 153974/2020
+
+LET me find out this is the same Zucker Family who evaded $500,000,000.00 in Taxes on the Six Properties they used as collateral to obtain a loan from State Farm - and also watched butt naked for a Year, distributed the videos and play with themselves.
+
+    https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=K9sgXcweC7esRoSPO8MNtA==
+
+    https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=D9Td7IfWXyajw1tBNCFb9g==
+
+
+
+
+   see also: LOSSES SUFFERED BY THEIR COUNTERPARTS DUE TO OMISSIONS - FILED NOVEMBER 13TH, 2021;
+
+THEN FURTHER DISTRIBUTED TO THE RESPONSIBLE PARTIES ON NOVEMBER 16TH, 2021.
+
+
+                   
+
+12-12-5858
+
+
+
+
+
+
+TUESDAY --- JANUARY 11, 2022
+Also wanted to make sure there was no relation between the two Reynoso, in case he didn't know - his brother is a PEEPING TOM as well.
+>> also unanswered.
+
+/s/ Bo Dincer
+
+
+https://www1.nyc.gov/assets/brooklyncb1/downloads/pdf/meeting-agendas/Combined_Public_Hearing_and_Board_Meeting_1-11-2022.pdf
+
+https://nyccb.webex.com/nyccb/onstage/g.php?MTID=e612f6401bfc6b617d3afa75563a41bf8
+
+https://www1.nyc.gov/assets/brooklyncb1/downloads/pdf/meeting-minutes/combined_public_hearing_and_board_meeting_minutes_1-11-2022.pdf
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=p2E8IhjyOS8ocQnqpLU9Lg==
+
+![IAj0PKJx7Zx9e1Xp](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
+
+12-12, 5858///
+https://github.com/users/BSCPGROUPHOLDINGSLLC/projects/1#column-18309490
+
+-------- Forwarded Message --------
+Subject: 	You forget the zip code champ??
+Date: 	Sat, 21 May 2022 09:51:59 -0400
+From: 	Bo Dincer <bdincer66@icloud.com>
+To: 	bk01@bk.gov, areynoso@mskyline.com, ZUCKER ORGANIZATION <jgiamboi@mskyline.com>, SHIKENA MELTON <SMELTON@mskyline.com>, legalasst@mskyline.com, LZUCKER@mskyline.com, tips@latimes.com, investor@annaly.com, investor@annaly.com, Chair <chair@sec.gov>, newyork@sec.gov, Ombudsman@sec.gov, TEDHERMANSON@northmarq.com, jpetit@mccarter.com, jheegan@doi.nyc.gov, Joseph Giamboi <joseph.giamboi@brooklaw.edu>, ZUCKER ORGANIZATION <jgiamboi@mskyline.com>, ricki.roer@wilsonelser.com, ashley.humphries@wilsonelser.com, slaskowitz@ingramllp.com, tips@nypost.com, BBO 121 <ms60710444266@yahoo.com>
+CC: 	boc@boc.nyc.gov, NYM-PREAComplianceMgr-S@bop.gov, Victimassistance.fraud@usdoj.gov
+
+
+
+
+<https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=p2E8IhjyOS8ocQnqpLU9Lg==>
+
+
+-------- Forwarded Message --------
+Subject: 	Mailbox Not Monitored
+Date: 	Sat, 21 May 2022 12:46:54 -0400
+From: 	Governor.Hochul@exec.ny.gov <Governor.Hochul@exec.ny.gov>
+To: 	ms60710444266@yahoo.com
+
+
+This mailbox is not monitored. You may contact Governor Hochul using this link:
+http://www.governor.ny.gov/contact-iframe
+Remember to visit Governor Hochul on Facebook, where you can receive regular updates on the actions of the Governor.
+
+ForwardedMessage.eml
+Subject:
+93715 - 153974/2020 --- 1516523
+From:
+B D2022 <ms60710444266@yahoo.com>
+Date:
+5/21/2022, 12:46 PM
+To:
+Governor Hochul <governor.hochul@exec.ny.gov>, "BK01 (CB)" <bk01@cb.nyc.gov>, "AREYNOSO@mskyline.com" <AREYNOSO@mskyline.com>
+CC:
+TEDHERMANSON@northmarq.com, jpetit@mccarter.com, ashley.humphries@wilsonelser.com, "alex.zuluaga@ey.com" <alex.zuluaga@ey.com>, "david.brown1@ey.com" <david.brown1@ey.com>, Deborah M Jones <Deborah.Jones@ey.com>, "info@ey.com" <info@ey.com>, "jacqueline.kelley@ey.com" <jacqueline.kelley@ey.com>, "karim.anani@ey.com" <karim.anani@ey.com>, "kevin.klimara@ey.com" <kevin.klimara@ey.com>, "lee.henderson@ey.com" <lee.henderson@ey.com>, "mark.schwartz1@ey.com" <mark.schwartz1@ey.com>, "rachel.gerring@ey.com" <rachel.gerring@ey.com>, "megan.disciullo@pwc.com" <megan.disciullo@pwc.com>, "larissa.vonlockner@pwc.com" <larissa.vonlockner@pwc.com>, "ryan.a.cangialosi@pwc.com" <ryan.a.cangialosi@pwc.com>, "kivalena.starr@pwc.com" <kivalena.starr@pwc.com>, "jordana.strosberg@pwc.com" <jordana.strosberg@pwc.com>, "will.b.hodges@pwc.com" <will.b.hodges@pwc.com>, "jennifer.vanoss@pwc.com" <jennifer.vanoss@pwc.com>, "SENDROWSKI, DANIEL" <Daniel.Sendrowski@nypd.org>
+
+ATTN: Mr. Reynoso,
+
+        RE:     NYFRB 93715 - 153974/2020
+
+LET me find out this is the same Zucker Family who evaded $500,000,000.00 in Taxes on the Six Properties they used as collateral to obtain a loan from State Farm - and also watched butt naked for a Year, distributed the videos and play with themselves.
+
+    https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=K9sgXcweC7esRoSPO8MNtA==
+
+
+    https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=D9Td7IfWXyajw1tBNCFb9g==
+
+
+
+
+   see also: LOSSES SUFFERED BY THEIR COUNTERPARTS DUE TO OMISSIONS - FILED NOVEMBER 13TH, 2021;
+
+THEN FURTHER DISTRIBUTED TO THE RESPONSIBLE PARTIES ON NOVEMBER 16TH, 2021.
+
+
+                   
+
+12-12-5858
+
+
+
+---
+
+
+TUESDAY --- JANUARY 11, 2022
+Also wanted to make sure there was no relation between the two Reynoso, in case he didn't know - his brother is a PEEPING TOM as well.
+>> also unanswered.
+
+/s/ Bo Dincer
+
+
+https://www1.nyc.gov/assets/brooklyncb1/downloads/pdf/meeting-agendas/Combined_Public_Hearing_and_Board_Meeting_1-11-2022.pdf
+
+https://nyccb.webex.com/nyccb/onstage/g.php?MTID=e612f6401bfc6b617d3afa75563a41bf8
+
+https://www1.nyc.gov/assets/brooklyncb1/downloads/pdf/meeting-minutes/combined_public_hearing_and_board_meeting_minutes_1-11-2022.pdf
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=p2E8IhjyOS8ocQnqpLU9Lg==
+
+
+-------- Forwarded Message --------
+Subject: 	You forget the zip code champ??
+Date: 	Sat, 21 May 2022 09:51:59 -0400
+From: 	Bo Dincer <bdincer66@icloud.com>
+To: 	bk01@bk.gov, areynoso@mskyline.com, ZUCKER ORGANIZATION <jgiamboi@mskyline.com>, SHIKENA MELTON <SMELTON@mskyline.com>, legalasst@mskyline.com, LZUCKER@mskyline.com, tips@latimes.com, investor@annaly.com, investor@annaly.com, Chair <chair@sec.gov>, newyork@sec.gov, Ombudsman@sec.gov, TEDHERMANSON@northmarq.com, jpetit@mccarter.com, jheegan@doi.nyc.gov, Joseph Giamboi <joseph.giamboi@brooklaw.edu>, ZUCKER ORGANIZATION <jgiamboi@mskyline.com>, ricki.roer@wilsonelser.com, ashley.humphries@wilsonelser.com, slaskowitz@ingramllp.com, tips@nypost.com, BBO 121 <ms60710444266@yahoo.com>
+CC: 	boc@boc.nyc.gov, NYM-PREAComplianceMgr-S@bop.gov, Victimassistance.fraud@usdoj.gov
+
+
+12-12, 5858  /// https://github.com/users/BSCPGROUPHOLDINGSLLC/projects/1#column-18309490
+
+<https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=p2E8IhjyOS8ocQnqpLU9Lg==>
+[Nov.16.2021.-.WMCKENZIE@NYCOURTS.GOV.---.SEC.---.BOC@BOC.NYC.GOV (3).pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748013/Nov.16.2021.-.WMCKENZIE%40NYCOURTS.GOV.---.SEC.---.BOC%40BOC.NYC.GOV.3.pdf)
+
+[Nov.16.2021.-.WMCKENZIE@NYCOURTS.GOV.---.SEC.---.BOC@BOC.NYC.GOV (8).pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748012/Nov.16.2021.-.WMCKENZIE%40NYCOURTS.GOV.---.SEC.---.BOC%40BOC.NYC.GOV.8.pdf)
+[TCRReport (1).pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748014/TCRReport.1.pdf)
+
+
