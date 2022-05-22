@@ -384,12 +384,207 @@ To: 	bk01@bk.gov, areynoso@mskyline.com, ZUCKER ORGANIZATION <jgiamboi@mskyline.
 CC: 	boc@boc.nyc.gov, NYM-PREAComplianceMgr-S@bop.gov, Victimassistance.fraud@usdoj.gov
 
 
-12-12, 5858  /// https://github.com/users/BSCPGROUPHOLDINGSLLC/projects/1#column-18309490
+![THE TWO DOLLAR PRO - INGRAM YUZEK GAINEN CAROLL AND BERTOLOTTI LLP](https://user-images.githubusercontent.com/70865813/169680139-844536af-6f23-4989-97d6-b06b51fc33fa.jpg)
 
-<https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=p2E8IhjyOS8ocQnqpLU9Lg==>
-[Nov.16.2021.-.WMCKENZIE@NYCOURTS.GOV.---.SEC.---.BOC@BOC.NYC.GOV (3).pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748013/Nov.16.2021.-.WMCKENZIE%40NYCOURTS.GOV.---.SEC.---.BOC%40BOC.NYC.GOV.3.pdf)
+![269 - ASHLEY HUMPHRIES_WILSONELSER](https://user-images.githubusercontent.com/70865813/169680140-a0fed87d-6297-40e5-b715-ef80a8207ca9.JPG)
 
-[Nov.16.2021.-.WMCKENZIE@NYCOURTS.GOV.---.SEC.---.BOC@BOC.NYC.GOV (8).pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748012/Nov.16.2021.-.WMCKENZIE%40NYCOURTS.GOV.---.SEC.---.BOC%40BOC.NYC.GOV.8.pdf)
-[TCRReport (1).pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748014/TCRReport.1.pdf)
+[53974-1516523-93715 -NYFRB POST 121 --.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748801/53974-1516523-93715.-NYFRB.POST.121.--.pdf)
+
+
+
+VIOLATION OF PRIVACY
+\ BREACH OF CONTRACT
+\ \ DISTRIBUTION WITHOUT CONSENT.
+- wilson elser firm 
+- SULLIVAN PROPERTIES LP
+and STATE FARM [ rents and leases assigned to STATE FARM ] in the matter of 153974/2020
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=c3iexOlBwsgc1lnMJ2_PLUS_AqQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=C4X_PLUS_6_PLUS_kgBxoElZyFgKxGEQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YvkihzM1cwANtAvbUwWX_PLUS_g==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=UZsCx4RNLy/6V9gf1BkpTQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YGRsoOyDJuc93MrOnwh5Jw==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=84wdx4RhX5LEi0sISXetBw==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=5uMb/ORklCen4NaSEt6oFg==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=C4X_PLUS_6_PLUS_kgBxoElZyFgKxGEQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=oz2nfEu9a94Y3U5/kpIt5g==
+
+
+
+\ \ \ READ CONFIRMATIONS.
+-----------
+Log Message
+-----------
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-112
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/acb6d35de46826dd608f8a9ed78c7bfd3bae574c
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/123d467324dd78d8be0108a042cd994f36bbfdd7
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/tree/VIOLATION-OF-PRIVACY-153974-1516523-93715	
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/5
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/5
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/33
+https://saaze2311prdsra.blob.core.windows.net/clean/db5e3c6a10d3ec11a7b5000d3a132789/8A5FDA9F-D641-4B62-9D15-3AF4205617AC.jpeg
+https://saaze2311prdsra.blob.core.windows.net/clean/8de5f89e10d3ec11a7b5002248286421/CE48526B-6A0E-4B2A-89B9-93BD202498A9.jpeg
+https://saaze2311prdsra.blob.core.windows.net/clean/a463845010d3ec11a7b5000d3a1326fe/0F6C27D5-69BD-4971-91F6-A5A40317CC63.jpeg
+https://saaze2311prdsra.blob.core.windows.net/clean/25aff4b997d3ec11a7b500224828654e/[STATE%20FARM%20VP%2043036]Advisers%20Investment%20Trust%20[$CIK%201516523]%20MONK[CRD%201357149].pdf
+A Read  with CPLR 2102(c)  a County Clerk   § 11 440 Tampering with or fabricating physical evidence
+A Read      FW  VIDEO   MOV DISTRIBUTION       CONFIRMED   MOV      .msg
+A Read      MOV distribution continues beyond earlier requests of non-consent     (601).msg
+
+-----------
+Log Message
+-----------
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-199
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/9bfe6b0b8e9fc680419ca8c7de0125aae1581e78
+A RE      NYSCEF Criminal Court Information     FOR THOSE SPOT (32).msg
+A RE  Read  FW  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY    (38).msg
+
+-----------
+Log Message
+-----------
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/5
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/7
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/11
+
+-----------
+Log Message
+-----------
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/16fe62235d4460d1fd11ed7a22ec672e8f05cfc1
+https://saaze2311prdsra.blob.core.windows.net/clean/b4cbce6ecfd7ec11a7b5002248307b90/Fwd-%20TAX%20EVASION%20%20attachments.%20.pdf.pdf
+https://saaze2311prdsra.blob.core.windows.net/clean/b692cf79cfd7ec11a7b5000d3a1956dd/Fwd:%20TAX%20EVASION%20%20attachments.%20.pdf
+https://saaze2311prdsra.blob.core.windows.net/clean/379bcc68ced7ec11a7b5000d3a1afadb/BOTARIZED.on.the.30TH.of.MARCH.2022.STATE.FARM.TRUST.FUND.---sec-sfitx-state-farm-interim-fund-4017g-2020-june-08.pdf
+https://saaze2311prdsra.blob.core.windows.net/clean/c690d567bad7ec11a7b5002248307f33/2022-03-27-ColinBrooks.png
+https://saaze2311prdsra.blob.core.windows.net/clean/bab7741fbad7ec11a7b5002248307b90/2020-08-09.NYSCEF.png
+https://saaze2311prdsra.blob.core.windows.net/clean/80414a9db6d7ec11a7b5002248307aa9/2020-08-09.NYSCEF.png
+https://saaze2311prdsra.blob.core.windows.net/clean/656c0a6ab6d7ec11a7b5000d3a1afadb/F1-MultiSF-Zucker.png
+https://saaze2311prdsra.blob.core.windows.net/clean/f4a3b0f5b1d7ec11a7b50022483079c1/Nov16-JamesGorman.png	
+A FW  Read      THANK YOU FOR KINDLY ALERTING YOUR MANAGERS  ACCEPT THIS AS A REASONABLE REQUEST
+A RE  BATCH 1 -- DO YOU SEE ANY OBSERVATION(S) OF A PLAYGEROUND OR COURTYARD IN THESE ANNEXED DOCUMENTS BY DEFENDANTS 
+A RE  Read      THANK YOU FOR KINDLY ALERTING YOUR MANAGERS  ACCEPT THIS AS A REASONABLE REQUEST  (37).msg
+A RE  Read      THANK YOU FOR KINDLY ALERTING YOUR MANAGERS  ACCEPT THIS AS A REASONABLE REQUEST  (38).msg
+A RE  Read      THANK YOU FOR KINDLY ALERTING YOUR MANAGERS  ACCEPT THIS AS A REASONABLE REQUEST .msg
+A RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY    (54).msg
+A RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY   .msg
+A RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5 (48).msg
+A RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5.msg
+A RE  ref         101 west 55th street  new york  NY  10019     DEED ATTACHED  you check the zip code on the first page .msg
+A RE  ref         101 west 55th street  new york  NY  10019     you see my forehead there .msg
+
+-----------
+Log Message
+-----------
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/d213f654d679a6b5f5238c6e9370393af4506cb4
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/123d467324dd78d8be0108a042cd994f36bbfdd7
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/tree/VIOLATION-OF-PRIVACY-153974-1516523-93715
+
+A RE  ALSO  FOR THE OTHER AREAS    NAUGHTY SPOTTY (36).msg
+A RE  Read  FW  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY   .msg
+A RE  ref         101 west 55th street  new york  NY  10019    (31).msg
+A https   iapps courts state ny us nyscef ViewDocument docIndex m7XGVkEfrWWMY0QngNAPNQ  .msg	 
+A Read      LOCATED THE VIDEOGRAPHER FOR THE ZUCKERS… IN THE FEDERAL RECORD  (1901).msg
+A Read      LOCATED THE VIDEOGRAPHER FOR THE ZUCKERS… IN THE FEDERAL RECORD  (2001).msg
+M Read      LOCATED THE VIDEOGRAPHER FOR THE ZUCKERS… IN THE FEDERAL RECORD .msg
+A Read      MOV distribution continues beyond earlier requests of non-consent     (124).msg
+A Read      MOV distribution continues beyond earlier requests of non-consent     (329).msg
+A Read      MOV distribution continues beyond earlier requests of non-consent     (454).msg
+A Read      MOV distribution continues beyond earlier requests of non-consent     (523).msg
+A Read      MOV distribution continues beyond earlier requests of non-consent     (527).msg
+A Read      MOV distribution continues beyond earlier requests of non-consent     (529).msg
+A Read      photographs and videotapes being held without consent    HAVE THE NOT BEEN RETURNED TO ME  (1166).msg
+A Read      photographs and videotapes being held without consent    HAVE THE NOT BEEN RETURNED TO ME  (1212).msg
+A Read      public record     ASSIGNMENT OF LEASES AND RENTS FOR $6 000 000 00      ## ACRIS 001 (1201).msg
+A Read  JOSEPH GIAMBOI   THE ZUCKER ORGANIZATION   MANHATTAN SKYLINE MANAGEMENT CORP   -- 2613041 -- (295).msg
+M Read  JOSEPH GIAMBOI   THE ZUCKER ORGANIZATION   MANHATTAN SKYLINE MANAGEMENT CORP   -- 2613041 --.msg
+A Read  RE  U S  Securities and Exchange Commission     (1527).msg
+A Read  RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY    (4).msg
+A Read  RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY    (43).msg
+A Read  RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY    (47).msg
+A Read  RE  https   github com BSCPGROUPHOLDINGSLLC ELSER-AND-DICKER pull 5  KIDS PRIVACY    (55).msg
+M Read  Read  FW      public record     ASSIGNMENT OF LEASES AND RENTS FOR $6 000 000 00      ## ACRIS 001.msg
+A Read  Read  FW  https   secure ice  https   iapps courts state ny us nyscef ViewDocument docIndex NvtIUa5jls0V4 OF7 XlGg   (67).msg
+A Read  U S  Code § 1512 18 U S  Code § 1512      VIDEO MOV      (1908).msg
+A Read  U S  Code § 1512 18 U S  Code § 1512      VIDEO MOV     .msg
+A Read  UPON NOTICE - ENTERED THE SAME IN THE DOCKETS --- BY DINCER  (289).msg
+M Read  UPON NOTICE - ENTERED THE SAME IN THE DOCKETS --- BY DINCER .msg
+A Read  VIDEO   MOV DISTRIBUTION.msg
+A Read  VIDEO   MOV DISTRIBUTIONs.msg
+A Read  may 22 2020 letter from Laskowitz.msg
+A Read  receipt for ingram § 776 26 Conflict of interest  General rule    EXHIBIT XXX November 24  2021   (1194).msg
+A Read  receipt for ingram § 776 26 Conflict of interest  General rule    EXHIBIT XXX November 24  2021  .msg
+M Read  ref         101 west 55th street  new york  NY  10019   .msg
+
+
+[ALL VIDEOS  - UNRETURNED AS OF CURRENT    SEE ALSO DOCKET 008]
+	008 - ROSALIA CHANN AND ALEXIS BRANDON
+
+<https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==>
+2020 07 26 - WINDOW NOT REPAIRED   CAMERA IS WORKING  ON 2020 08 07 DOCKET 300
+2022 02 04 --- FRIDAY  --- CONFIRMATIONS
+2022 02 06 --- SUNDAY --- CONFIRMATIONS
+CAMERA HAS NOT BEEN REMOVED - ENTERED IN THE DESCRIPTION OF THESE EXHIBITS - REYNOSO - TECHMANN  VENTILATOR  FOUND A  MOV FILE
+___________________________________________________________________________________________________________________________________________
+
+<https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8706680/nov13.and.Dec18.2021.-.multiple.dwelling.laws.pdf>
+
+<https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8706682/PS-Investigation%40facil.columbia.edu.crcmessages%40ftc.gov.pdf>
+
+___________________________________________________________________________________________________________________________________________
+[HIRED A sub-par ON-DEMAND VIDEO SPECIALIST.]
+**** ps what the heck is Pod-Cast?
+**** did NOT know I had one of those either.
+@rosaliachann
+<https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==>
+
+-----------
+Log Message
+-----------
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/06cbdda330f69686bb28e74b6f74f3d2371b99da
+
+THESE PERVERT UPLOADED THE VIDEOS THEMSELVES.... AND EMAILED THEM AMONGS EACH OTHER...
+https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/2
+
+-----------
+Log Message
+-----------
+https://saaze2311prdsra.blob.core.windows.net/clean/2f7c8ae375d5ec11a7b5002248307b90/Screenshot_20220516-013630_Chrome.jpg
+	
+	
+
+
+[53974-1516523-93715 -NYFRB POST 121 --.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748806/53974-1516523-93715.-NYFRB.POST.121.--.pdf)
+
+# 12.12 58-58 
+*** QUICKLY NOW >>>  THE EX-PERPS/HATERS ARE WATCHING.
+
+
+
+
+![QUICK](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
+
+LOOKS LIKE THIS: 
+
+![image](https://user-images.githubusercontent.com/70865813/169680243-d8b5501d-8f42-46c6-859e-7984bd2468e5.png)
+
+[FILED](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)
+
+
+>>>  TRUST ME. I TRACK THEIR "KNOWLEDGE" ALSO.
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-112
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/acb6d35de46826dd608f8a9ed78c7bfd3bae574c
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/123d467324dd78d8be0108a042cd994f36bbfdd7
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-199
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/9bfe6b0b8e9fc680419ca8c7de0125aae1581e78
+
+## THAT'S A TWELVE TWELVE FIFTY EIGHT RIGHT?
+** THAT TRUTH, HURTS, JUST LIKE THE HERTZ AWARD I RECEIVED.
+
+![THAT TRUTH - HURTS](https://saaze2311prdsra.blob.core.windows.net/clean/61f910a979d5ec11a7b5000d3a1af965/2020-06-03%20Notice%20and%20Obstruction.png)
+
+
+![TWELVE TWELVE FIFTY EIGHT](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
+
 
 
