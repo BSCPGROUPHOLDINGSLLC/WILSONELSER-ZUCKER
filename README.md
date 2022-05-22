@@ -1,3 +1,37 @@
+# 12.12 58-58 
+*** QUICKLY NOW >>>  THE EX-PERPS/HATERS ARE WATCHING.
+
+![QUICK](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
+
+LOOKS LIKE THIS: 
+
+![image](https://user-images.githubusercontent.com/70865813/169680243-d8b5501d-8f42-46c6-859e-7984bd2468e5.png)
+
+[FILED](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)
+
+
+>>>  TRUST ME. I TRACK THEIR "KNOWLEDGE" ALSO.
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-112
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/acb6d35de46826dd608f8a9ed78c7bfd3bae574c
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/123d467324dd78d8be0108a042cd994f36bbfdd7
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-199
+
+* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/9bfe6b0b8e9fc680419ca8c7de0125aae1581e78
+
+## THAT'S A TWELVE TWELVE FIFTY EIGHT RIGHT?
+** THAT TRUTH, HURTS, JUST LIKE THE HERTZ AWARD I RECEIVED.
+
+![THAT TRUTH - HURTS](https://saaze2311prdsra.blob.core.windows.net/clean/61f910a979d5ec11a7b5000d3a1af965/2020-06-03%20Notice%20and%20Obstruction.png)
+
+
+![TWELVE TWELVE FIFTY EIGHT](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
+
+
+# JUST COST THE NEARLY TWO BILLION DOLLARS --
+
 ### EMAIL CONFIRMATIONS BY THE COUNSELORS OF THE ZUCKER ORGANIZATION
 *** A VIOLATION OF PRIVACY AND A BREACH OF THE LAW AND CONTRACT.
 ![image](https://user-images.githubusercontent.com/70865813/168748861-5b05f977-8c84-4a7f-be24-dd5c5fba38ab.png)
@@ -54,6 +88,10 @@ https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/pull/7
 test this here. [^1]
 ![image](https://user-images.githubusercontent.com/70865813/169647568-ac8dec51-531a-4617-be0e-8761b9743b7d.png)
 
+
+## NO MORE LETTERS EITHER THOUGH - THANK HEAVEN.
+
+[https://user-images.githubusercontent.com/70865813/154165664-8ee2ea3f-b933-4d20-9224-c70e54b0b882.png](https://user-images.githubusercontent.com/70865813/154165664-8ee2ea3f-b933-4d20-9224-c70e54b0b882.png)
 
 ---
 >					
@@ -551,40 +589,4 @@ https://saaze2311prdsra.blob.core.windows.net/clean/2f7c8ae375d5ec11a7b500224830
 
 
 [53974-1516523-93715 -NYFRB POST 121 --.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/WILSONELSER-ZUCKER/files/8748806/53974-1516523-93715.-NYFRB.POST.121.--.pdf)
-
-# 12.12 58-58 
-*** QUICKLY NOW >>>  THE EX-PERPS/HATERS ARE WATCHING.
-
-
-
-
-![QUICK](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
-
-LOOKS LIKE THIS: 
-
-![image](https://user-images.githubusercontent.com/70865813/169680243-d8b5501d-8f42-46c6-859e-7984bd2468e5.png)
-
-[FILED](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)
-
-
->>>  TRUST ME. I TRACK THEIR "KNOWLEDGE" ALSO.
-* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-112
-
-* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/acb6d35de46826dd608f8a9ed78c7bfd3bae574c
-
-* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/123d467324dd78d8be0108a042cd994f36bbfdd7
-
-* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-199
-
-* https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/9bfe6b0b8e9fc680419ca8c7de0125aae1581e78
-
-## THAT'S A TWELVE TWELVE FIFTY EIGHT RIGHT?
-** THAT TRUTH, HURTS, JUST LIKE THE HERTZ AWARD I RECEIVED.
-
-![THAT TRUTH - HURTS](https://saaze2311prdsra.blob.core.windows.net/clean/61f910a979d5ec11a7b5000d3a1af965/2020-06-03%20Notice%20and%20Obstruction.png)
-
-
-![TWELVE TWELVE FIFTY EIGHT](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
-
-
 
