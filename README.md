@@ -3,14 +3,16 @@
 
 ![QUICK](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
 
-LOOKS LIKE THIS: 
+## LOOKS LIKE THIS - 95715 INTO >>> 1516523 
 
 ![image](https://user-images.githubusercontent.com/70865813/169680243-d8b5501d-8f42-46c6-859e-7984bd2468e5.png)
 
-[FILED](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)
+[https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf](https://www.sec.gov/Archives/edgar/data/0000093715/999999999721005790/filename1.pdf)
 
 
 >>>  TRUST ME. I TRACK THEIR "KNOWLEDGE" ALSO.
+>>>  NOT ADJUDICATED = OPEN-ENDED EXPOSURES THEY DON'T UNDERSTAND... IT'S THAT EASY.
+
 * https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/BSCPGROUPHOLDINGSLLC-patch-112
 
 * https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/commit/acb6d35de46826dd608f8a9ed78c7bfd3bae574c
@@ -30,7 +32,7 @@ LOOKS LIKE THIS:
 ![TWELVE TWELVE FIFTY EIGHT](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
 
 
-# JUST COST THE NEARLY TWO BILLION DOLLARS --
+# JUST COST THEM NEARLY TWO BILLION DOLLARS --
 
 ### EMAIL CONFIRMATIONS BY THE COUNSELORS OF THE ZUCKER ORGANIZATION
 *** A VIOLATION OF PRIVACY AND A BREACH OF THE LAW AND CONTRACT.
