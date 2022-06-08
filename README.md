@@ -1,6 +1,8 @@
 # 12.12 58-58 
 *** QUICKLY NOW >>>  THE EX-PERPS/HATERS ARE WATCHING.
 
+<https://github.com/BSCPGROUPHOLDINGSLLC/AIDED-LIKE-BERNIE/find/7-httpsgithubcombscpgroupholdingsllcelser-and-dickercommit1>
+
 ![QUICK](https://user-images.githubusercontent.com/70865813/169661616-e7eaa0f1-5edf-4d5c-bc1d-5793427eb39f.png)
 
 ## LOOKS LIKE THIS - 95715 INTO >>> 1516523 
